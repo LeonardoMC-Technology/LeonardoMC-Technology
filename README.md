@@ -3,7 +3,7 @@ English:
 Hi my name is Leonardo Batista and I'am locking forcoding generator
 PLUS+ Tryng to crate a operating system. If you have any Questions
 About me contact me in ✉leonardo2015ldbp@gmail.com✉
-Follo me on youtube https://www.youtube.com/@leo_batista_world.
+Follow me on youtube https://www.youtube.com/@leo_batista_world.
 
 Spanish:
 
